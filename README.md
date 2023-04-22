@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Adii43.
 - 👀 I’m interested in Block Chain.
 - 🌱 I’m currently learning BCA ( Bachelors 0f Computer Application).
-- 📫 How to reach me DM me at Instagram @_addy_43, Linkledin on www.linkedin.com/in/
+- 📫 How to reach me DM me at Instagram https://www.instagram.com/_addy_43/?hl=bn, Linkledin on www.linkedin.com/in/
 aditya-h-9a606b23a.
 
 
